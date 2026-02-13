@@ -1,2 +1,0 @@
-# Isabella
-ONLY FOR BELLA
